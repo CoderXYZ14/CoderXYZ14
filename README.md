@@ -12,8 +12,6 @@
 
 - 📫 How to reach me **shahwaizislam1404@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_fJZ5_sRgRjfmJvAzCYW17shzSodbKTu/view?usp=sharing](https://drive.google.com/file/d/1_fJZ5_sRgRjfmJvAzCYW17shzSodbKTu/view?usp=sharing)
-
 - ⚡ Fun fact **I'm not funny.**
 
 <h3 align="left">Connect with me:</h3>
